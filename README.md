@@ -1,0 +1,2 @@
+# ramirez_manzo_alexa_guadalupe_act_sep_2024
+actividades varias en clases
